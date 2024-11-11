@@ -1,4 +1,4 @@
-### Hi there Now testing 👋
+### Hi there! 👋
 
 Testing
 <!--
