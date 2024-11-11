@@ -20,3 +20,9 @@ Here are some ideas to get you started:
 
  📫 How to reach me: ...
  https://www.linkedin.com/in/jarredfinney/
+
+
+Want to know more?
+Profile
+15 years’ experience managing and developing collaborative software projects.
+
